@@ -22,7 +22,7 @@
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1y66Sq70vVgmcWYGNbi6nW7MOwaNjvijk/edit?usp=drive_link&ouid=108492284723168205423&rtpof=true&sd=true](https://docs.google.com/document/d/1y66Sq70vVgmcWYGNbi6nW7MOwaNjvijk/edit?usp=drive_link&ouid=108492284723168205423&rtpof=true&sd=true)
 
-- ⚡ Fun fact **I'am an esports player.**
+- ⚡ Fun fact **I Play Games.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
